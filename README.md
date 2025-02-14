@@ -4,7 +4,7 @@
 - **Phone**: +92 322 6411283
 - **Email**: [adnan.malik2012sgd@gmail.com](mailto:adnan.malik2012sgd@gmail.com)
 - **Address**: Sargodha, 40300 (PK)
-
+- **Profile**: [adnan.mallik.github.io.](adnan.mallik.github.io.)
 ---
 
 ## <span style="color: #FF5722;">Skills</span>
